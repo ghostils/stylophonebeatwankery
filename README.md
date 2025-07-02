@@ -1,2 +1,3 @@
 # stylophonebeatwankery
-I bought a beat and immediately took it apart to "play" with. 
+I bought a Stylophone Beat and immediately took it apart to "play" with. 
+
